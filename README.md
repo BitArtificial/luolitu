@@ -21,5 +21,5 @@
 
 ![image](https://github.com/BitArtificial/luolitu/blob/master/3.png)
 
-![image](https://github.com/BitArtificial/luolitu/blob/master/4.png)
+![image](https://github.com/BitArtificial/luolitu/blob/master/4.jpg)
 
